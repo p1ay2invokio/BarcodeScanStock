@@ -23,4 +23,4 @@ thai version
 
 ## Support
 
-For support, email play21948@gmail.com or join subscribe youtube channel https://www.youtube.com/@play2strikeglobaloffensive.
+For support, join subscribe youtube channel https://www.youtube.com/@play2strikeglobaloffensive.
