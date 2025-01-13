@@ -1,3 +1,5 @@
+![App Screenshot](./screenshot.png)
+
 # How to run program
 
 english version
